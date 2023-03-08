@@ -7,6 +7,7 @@ Agnostic-Atheist, Apolitical, Anarchist, Footballer, Idealist
 Becoming a Billionaire is the final destination for me.
 
 Not interested in Girls who can't solve a simple arithmetic question in their mind, please don't bring dishonour to my intellectual integrity. Narcissistic it may sound, but having high self esteem and holding myself to high standards isn't explicitly unethical or aberrant. I also have a stark apathy towards licentious and dissolute women.
+
 My favourite authors : Sir Richard
 Feynman, Resnick Halliday and Walker, I Trodov, SS Krotov, Stephen Hawking, Itzykson and Zuber... the list goes on.. (expected some comics or stuff huh?)
 
