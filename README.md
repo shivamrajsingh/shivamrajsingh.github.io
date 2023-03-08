@@ -1,4 +1,4 @@
-**About Me : **
+About Me : "Parental Advisory" (Explicit Content)
 
 I am a 20 year old, Sapiosexual, JEE
 Aspirant, Astrophile, Philomath, Polymath, Polyglot, Optimist, Perfectionist, Intellectual, INTJ-A 9w3,
@@ -14,4 +14,4 @@ Feynman, Resnick Halliday and Walker, I Trodov, SS Krotov, Stephen Hawking, Itzy
 My favourite TV shows: i don't watch TV. Period.
 
 My favourite subjects: Physics, Mathematics, Computer Science, Astronomy, Astrophysics, Paleontology, Roman History, Cosmology, Rocket Science.
-Languages i know: Gujarati, Hindi, English, Bengali Languages I'm learning: Latin, Greek, Japanese, Mandarin, Spanish, Italian, German teri maa ka
+Languages i know: Gujarati, Hindi, English, Bengali Languages I'm learning: Latin, Greek, Japanese, Mandarin, Spanish, Italian, German, teri maa ka
