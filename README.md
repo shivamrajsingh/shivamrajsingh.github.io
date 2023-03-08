@@ -2,7 +2,7 @@ About Me : "Parental Advisory" (Explicit Content)
 
 I am a 20 year old, Sapiosexual, JEE
 Aspirant, Astrophile, Philomath, Polymath, Polyglot, Optimist, Perfectionist, Intellectual, INTJ-A 9w3,
-Agnostic-Atheist, Apolitical, Anarchist, Footballer, Idealist 
+Agnostic-Atheist, Apolitical, Anarchist, Footballer, Idealist. 
 
 Becoming a Billionaire is the final destination for me.
 
